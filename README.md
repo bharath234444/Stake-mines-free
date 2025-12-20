@@ -1,1 +1,1 @@
-# Stake-mines-free
+# Stake Mines Free Predictions 
